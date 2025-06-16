@@ -1,1 +1,1 @@
-![Cool GIF](https://media.newyorker.com/photos/67411352a7d224b818eb08a5/master/w_2560%2Cc_limit/r45251web_rd.gif)
+![Cool GIF](https://i.pinimg.com/originals/44/c7/c1/44c7c1f3fbd68b2151c37af5f08198f1.gif)
